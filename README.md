@@ -1,0 +1,1 @@
+# shousuiryoku-niigata.github.io
